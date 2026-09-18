@@ -6,4 +6,4 @@ j'aime la banane et le plantain
 t'inquiète t'aura ton yaourt
 
 
-bonjour les amis comment vous allez les gars
+bonjour les amis comment vous allez les filles
